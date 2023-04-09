@@ -1,0 +1,2 @@
+# mysudeposu
+Başlangıc
